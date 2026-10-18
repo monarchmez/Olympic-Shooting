@@ -1,0 +1,1 @@
+Australia is the host country for the 2032 Summer Olympic Games, with the events centered in the city of Brisbane, Queensland. As part of the core Olympic program, shooting sports will take place at the Brisbane International Shooting Centre, which is situated within the existing Belmont Shooting Complex
